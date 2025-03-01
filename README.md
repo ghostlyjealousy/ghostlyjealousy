@@ -2,7 +2,7 @@
 
 my name is cal (callahan) . he/him
 
-very hyperfixed on kpop right now (skz, en- and shinee)
+sort of hyperfixated on kpop rn.. mostly SHINee. 
 
 i also really love fall out boy and the academy is
 
