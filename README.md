@@ -2,7 +2,7 @@
 
 my name is cal (callahan) . he/him
 
-sort of hyperfixated on kpop rn.. mostly SHINee. 
+sort of hyperfixated on kpop rn.. more into bgs \(skz, en-, SHINee, svt, bnd, txt) 
 
 i also really love fall out boy and the academy is
 
@@ -13,7 +13,7 @@ PLEASEEE talk to me about them..... ^^^^
  
 ![cute_is_what_we_aim_for_by_oxygenik_d2f2dse-fullview](https://github.com/ghostlyjealousy/ghostlyjealousy/assets/167539182/2f3bd5cf-5e8a-49b9-909b-6340416be2c1) ![weezer_stamp_by_iheartkimpine_d5k453o-fullview](https://github.com/ghostlyjealousy/ghostlyjealousy/assets/167539182/b7c2820d-7fa0-44f9-97ad-620aef4ae24a) ![d6qgn4e-e1e196f4-92eb-454e-b5e8-e1ef35734c18](https://github.com/ghostlyjealousy/ghostlyjealousy/assets/167539182/70e1a122-e350-452c-940f-230813aa0979) ![da8834c-b9dc58dd-9576-4d11-b7fa-0bfb725bd59f](https://github.com/ghostlyjealousy/ghostlyjealousy/assets/167539182/a24f1dac-4b9d-4c5a-ac70-aedf8d340c12) 
 
-i have autism. i will probably be nervous and awkward talking to you even if we're friends/have already spoken before.
+i have autism. even if we are friends &/or have spoken before, i'll probably be really awkward and nervous. my social skills are awful.. please excuse me if i go silent randomly.
 
 if we've talked before, feel free to friend me <3
 
