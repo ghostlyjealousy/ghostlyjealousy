@@ -2,7 +2,7 @@
 
 my name is cal (callahan) . he/him
 
-sort of hyperfixated on kpop rn.. more into bgs \(skz, en-, SHINee, svt, bnd, txt) 
+main interests right now are buzzfeed unsolved & kpop. (i am aware that it is a weird combination)
 
 i also really love fall out boy and the academy is
 
@@ -16,6 +16,7 @@ uhm ponytown stuff uhh.. c+h is fine.. erm.. w2i cus im probably offtab.. thnx.
 
 
 i have autism. even if we are friends &/or have spoken before, i'll probably be really awkward and nervous. my social skills are awful.. please excuse me if i go silent randomly.
+(i can also be really really loud and obnoxious LOL so sorry about that ...)
 
 if we've talked before, feel free to friend me <3
 
