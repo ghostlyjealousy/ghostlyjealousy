@@ -28,7 +28,7 @@ some socials vv
 
 if we're friends, you can ask for my discord & twt :3
 
-<< send me something through my straw.page :]
+
 
 
 
