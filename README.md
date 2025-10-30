@@ -16,7 +16,7 @@ c+h, booping/kissing and giving me gifts is okay. keep in mind im not the best a
 
 (away) <img width="13" height="3000" alt="eHW8KmV" src="https://github.com/user-attachments/assets/450c8868-544f-4e43-b0c4-13881364bf00" /> - afk or i forgot i was ingame. oops!
 
-(busy) <img width="13" height="3000" alt="JlXjK4S" src="https://github.com/user-attachments/assets/f790cc6a-a70a-4895-9d6b-c4d5b233024f" /> - afk, offtab, or i'm just distracted doing something else.
+(busy) <img width="13" height="3000" alt="JlXjK4S" src="https://github.com/user-attachments/assets/f790cc6a-a70a-4895-9d6b-c4d5b233024f" /> - afk, offtab, distracted, or i'm not fully "there" so i won't reply as quick.
 
 
 
