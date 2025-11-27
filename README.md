@@ -37,7 +37,7 @@ if we've talked before, feel free to friend me <3
 
 some socials vv
 
-[spotify,](https://open.spotify.com/user/c09lv7773kwarps1bxnmlncyz?si=4a5e22513bca467c) [tumblr,](https://www.tumblr.com/blog/ghostlyconfusion) [last.fm](https://www.last.fm/user/loserrk1dd) 
+[spotify,](https://open.spotify.com/user/c09lv7773kwarps1bxnmlncyz?si=4a5e22513bca467c) [tumblr,](https://www.tumblr.com/blog/ghostlyconfusion) [last.fm,](https://www.last.fm/user/loserrk1dd) [spacehey](https://spacehey.com/ghostlyjealousy)
 
 if we're friends, you can ask for my discord & twt :3
 
