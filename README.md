@@ -2,7 +2,7 @@
 
 my name is cal (callahan) . he/him
 
-main interests right now are buzzfeed unsolved/watcher & kpop. (i am aware that it is a weird combination)
+main interests right now are defunctland / sims / kpop
 
 i also really love fall out boy and the academy is
 
