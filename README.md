@@ -2,7 +2,7 @@
 
 my name is cal (callahan) . he/him
 
-main interests right now are defunctland / stardew valley
+main interests right now are defunctland / stardew valley / animal jam
 
 i also really love fall out boy and the academy is
 
