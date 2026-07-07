@@ -2,7 +2,7 @@
 
 my name is cal (callahan) . he/him
 
-main interests right now are defunctland / stardew valley / animal jam
+main interests right now are animal jam / food house
 
 i also really love fall out boy and the academy is
 
@@ -12,11 +12,11 @@ PLEASEEE talk to me about them..... ^^^^
 
 c+h, booping/kissing and giving me gifts is okay. keep in mind im not the best at talking. im not always looking at the game, whisper me if you need my attention!!
 
-(online) <img width="13" height="3000" alt="QU35DxI" src="https://github.com/user-attachments/assets/058f0145-f293-4d74-bfda-654aca2d54df" /> - i'm actively looking at the game or talking to people. 
+(online) <img width="13" height="13" alt="QU35DxI" src="https://github.com/user-attachments/assets/058f0145-f293-4d74-bfda-654aca2d54df" /> - i'm actively looking at the game or talking to people. 
 
-(away) <img width="13" height="3000" alt="eHW8KmV" src="https://github.com/user-attachments/assets/450c8868-544f-4e43-b0c4-13881364bf00" /> - afk or i forgot i was ingame. oops!
+(away) <img width="13" height="13" alt="eHW8KmV" src="https://github.com/user-attachments/assets/450c8868-544f-4e43-b0c4-13881364bf00" /> - afk or i forgot i was ingame. oops!
 
-(busy) <img width="13" height="3000" alt="JlXjK4S" src="https://github.com/user-attachments/assets/f790cc6a-a70a-4895-9d6b-c4d5b233024f" /> - afk, offtab, distracted, or i'm not fully "there" so i won't reply as quick.
+(busy) <img width="13" height="13" alt="JlXjK4S" src="https://github.com/user-attachments/assets/f790cc6a-a70a-4895-9d6b-c4d5b233024f" /> - afk, offtab, distracted, or i'm not fully "there" so i won't reply as quick.
 
 
 
